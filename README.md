@@ -1,4 +1,7 @@
 # PiE-Ink-Name-Badge
+
+Full tutorial here: https://www.instructables.com/id/PiE-Ink-Name-Badge/
+
 Want to decorate your chest with something amazingly dorky? Want to stand out in a crowd? How about earn some serious geek cred, and the wonderment of your peers?
 
 HAVE I GOT THE THING FOR YOU!
